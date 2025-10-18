@@ -6,7 +6,7 @@
 
 - **Nama:** Graciella Li
 - **Alamat:** Jl. Selam No. 39-41, Medan
-- **Telepon:** 08277166980
+- **Telepon:** 085277166980
 - **Email:** sma.3521.graciellali@bodhicitta.sch.id
 - **LinkedIn:** [lindekdin.com/in/graciellali](https://linkedin.com/in/graciellali)
 
